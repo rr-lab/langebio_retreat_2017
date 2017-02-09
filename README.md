@@ -39,7 +39,7 @@ Break/discussion (18:30 - 19:30)
 
 Dinner (19:30 - 20:30)
 
-Free time for further interactions (>20:30)
+Free time for further interactions or last minute presentations (>20:30)
 
 ### Friday Feb 24th
 
